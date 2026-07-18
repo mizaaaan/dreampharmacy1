@@ -1,2 +1,2 @@
 # dreampharmacy
-https://mizaaaan.github.io/dreampharmacy/
+https://mizaaaan.github.io/dreampharmacy1/
